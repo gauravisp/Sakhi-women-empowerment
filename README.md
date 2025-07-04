@@ -25,7 +25,4 @@ Guidance on reporting harassment or discrimination
 If you’d like to collaborate, contribute, or seek more information, feel free to reach out at:
 v60228121@gmail.com 
 
-📬 Contact
-If you’d like to collaborate, contribute, or seek more information, feel free to reach out at:
-📧 gauravipatilsakhi@gmail.com
 
